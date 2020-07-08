@@ -1,0 +1,1 @@
+Kép háttér, alatta szöveg
